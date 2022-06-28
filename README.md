@@ -1,4 +1,4 @@
-# Prathap' Notes
+# Prathap's Notes
 
 ## Summary 
 
